@@ -19,3 +19,4 @@ well i will make another future version plan,stay ituned jailbreak version for
 more thingys.
 Scripts will be added to my Pastebin in the future
 and maybe a Jailbreak for IOS 10.
+(im off topic,but i will make it in L33TIOS)

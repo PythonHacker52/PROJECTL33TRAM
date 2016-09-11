@@ -17,3 +17,5 @@ And have a free demo with strong firewall.
 b.t.w you only have to log in once for it to save
 well i will make another future version plan,stay ituned jailbreak version for
 more thingys.
+Scripts will be added to my Pastebin in the future
+and maybe a Jailbreak for IOS 10.
